@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ULTRA-CAST
+- 👀 I’m interested in improving my current skill set
+- 🌱 I’m currently working on my Computer Science Degree
